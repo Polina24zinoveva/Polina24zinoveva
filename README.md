@@ -28,7 +28,7 @@
 
 Email: polina.zinoveva@list.ru
 
-Telegram: @polina_zinoveva 
+Telegram: [@polina_zinoveva](https://t.me/polina_zinoveva)
 
 Vk: [Полина Зиновьева](https://vk.com/polinazinoveva24) 
 
